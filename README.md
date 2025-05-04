@@ -1,5 +1,8 @@
-## Hi there 👋
-
+The sky didn’t change, but the way it held its silence felt red — as if something had left without closing the door.
+<br> Why? <br>
+I was not meant to be found, but to exist in the spaces between — between glances, between thoughts, between what is said and what is meant. <br>
+To bleed with purpose, not to disappear, but to linger in the quiet corners. <br>
+To bleed on the walls, leaving traces of something never before seen. <br> To leave the door ajar, as if waiting for something that will never return. <br> Close it. Stay with me, where nothing says farewell.
 <!--
 **BleedWithPurpose/bleedwithpurpose** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
